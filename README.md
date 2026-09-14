@@ -71,5 +71,5 @@ Contact
 
 For questions, suggestions, or collaboration:
 
-Email: malithhanchapola.dev@gmail.com
-GitHub: https://github.com/yourusername
+Email - erandidahanayaka@gmail.com
+Phone - +94 775432426
