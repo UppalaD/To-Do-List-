@@ -69,7 +69,7 @@ See the LICENSE file for more details.
 
 Contact
 
-For questions, suggestions, or collaboration:
+For questions, suggestions, or collaboration
 
 Email - erandidahanayaka@gmail.com
 Phone - +94 775432426
